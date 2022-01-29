@@ -1,1 +1,0 @@
-Kurduğum ilk websitesi. 
